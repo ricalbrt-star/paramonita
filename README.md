@@ -1,2 +1,0 @@
-# paramonita
-Galeria personal
